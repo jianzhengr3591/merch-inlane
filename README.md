@@ -1,6 +1,6 @@
-Tuesday
+monday 
 we 
 will 
 go 
 play 
-football
+volleyball
