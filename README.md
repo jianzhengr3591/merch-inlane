@@ -1,4 +1,6 @@
-friday 
+
+wednesday 
+
 we 
 will 
 go 
