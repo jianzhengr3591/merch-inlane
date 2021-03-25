@@ -1,4 +1,4 @@
-monday 
+friday 
 we 
 will 
 go 
